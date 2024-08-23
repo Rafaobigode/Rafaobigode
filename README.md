@@ -8,7 +8,7 @@ Meu nome e Rafaobigode
 
 - ## Você entrar em contato comigo 📫
 
- rafasilverio321@gmail.com
+ 00001126447602sp@al.educacao.sp.gov.br
  
  @rafao
 
